@@ -5,6 +5,5 @@
 
 **IMAGES:**
 
-![1](https://i.imgur.com/qMFqen8.png)
-![2](https://i.imgur.com/UEPPIB4.png)
-![3](https://i.imgur.com/n2I2nxt.png)
+![1](https://i.imgur.com/iZagz1s.jpeg)
+![2](https://i.imgur.com/yktHR9M.jpeg)
